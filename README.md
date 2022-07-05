@@ -7,3 +7,8 @@ Basica y media compelta
 * 3° a 4° medio: Athletic Study Center
 ## Formación Universitaria
 Actualmente cursando quinto año de Ingeniería Comercial en Universidad Adolfo Ibañez, sede Santiago
+## Idiomas
+* Ingles intermedio
+* Alemán básico
+* Frances básico
+## Otros datos de interes
