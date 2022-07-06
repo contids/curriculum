@@ -19,7 +19,7 @@ Equitadora desde 2007, representando a Chile en salto ecuestre en Alemania, Fran
 * E-mail: mariadelgado@alumnos.uai.cl 
 contydelgado@gmail.com
 
-![IMG_3123](https://user-images.githubusercontent.com/108349882/177471154-13daf3c3-e191-44c7-b015-d868931eece2.JPG)
+
 ![_DSC1488](https://user-images.githubusercontent.com/108349882/177471513-629c62c7-bab0-48f6-8abe-1349fdf07b9e.jpg)
 
 
