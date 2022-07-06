@@ -16,4 +16,5 @@ Equitadora desde 2007, representando a Chile en salto ecuestre en Alemania, Fran
 ## Contacto
 * Direccion: Av. San Francisco de Asís 1800, Las Condes, Santiago, Chile
 * Telefono: (+56) 9 5667 3133
-* E-mail: mariadelgado@alumnos.uai.cl contydelgado@gmail.com
+* E-mail: mariadelgado@alumnos.uai.cl 
+contydelgado@gmail.com
