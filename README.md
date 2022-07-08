@@ -1,4 +1,5 @@
 # Curriculum
+### <font color='#fa8072'> Title 1 </font>
 # Maria Constanza Delgado Smulders
 ## Formación escolar
 Basica y media compelta
@@ -22,7 +23,6 @@ Equitadora desde 2007, representando a Chile en salto ecuestre en Alemania, Fran
 
 ![_DSC1488](https://user-images.githubusercontent.com/108349882/177471513-629c62c7-bab0-48f6-8abe-1349fdf07b9e.jpg)
 
-https://user-images.githubusercontent.com/108349882/178058886-68318fef-d1f6-47fe-982b-a3d0bf0e3e23.mp4
 
 
 https://vm.tiktok.com/ZMNyLWTCv/?k=1
