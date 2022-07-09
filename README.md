@@ -12,7 +12,7 @@ Cursando quinto año de Ingeniería Comercial en Universidad Adolfo Ibañez, sed
 * Alemán básico
 * Frances básico
 ## Intereses
-Equitadora desde 2007, representando a Chile en salto ecuestre en Alemania, Francia, Holanda, Estados Unidos, Colombia, Argentina y Chile. 
+Me encantan los animales, hago equitación desde 2007, representando a Chile en salto ecuestre en Alemania, Francia, Holanda, Estados Unidos, Colombia, Argentina y Chile. 
 ## Contacto
 * Direccion: Av. San Francisco de Asís 1800, Las Condes, Santiago, Chile
 * Telefono: (+56) 9 5667 3133
