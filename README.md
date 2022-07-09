@@ -20,7 +20,7 @@ Me encantan los animales, hago equitación desde 2007, representando a Chile en 
 
 
 
-![_DSC1488](https://user-images.githubusercontent.com/108349882/177471513-629c62c7-bab0-48f6-8abe-1349fdf07b9e.jpg)
+![_DSC1488](https://user-images.githubusercontent.com/108349882/177471513-629c62c7-bab0-48f6-8abe-1349fdf07b9e.jpg) "width=250" "length=250"
 
 
 
