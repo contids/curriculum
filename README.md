@@ -1,5 +1,5 @@
 # Curriculum
-# <font color='#F78181'> Maria Constanza Delgado Smulders</font>
+# <#F78181> Maria Constanza Delgado Smulders</font>
 # Maria Constanza Delgado Smulders
 ## Formación escolar
 Basica y media compelta
